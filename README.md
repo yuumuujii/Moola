@@ -35,5 +35,5 @@ I am an On-Chain Investigator and Compliance Analyst transitioning from a backgr
 
 #### 📫 Contact
 * **Role:** Open to Remote Contractor / Analyst roles in Compliance & Investigations.
-* **Location:** [Your Timezone/City]
-* **Twitter/X:** [@YourHandle](https://twitter.com/YourHandle)
+* **Location:** New York 
+* **Twitter/X:** [@yuumuujii](https://x.com/yuumuujii)
